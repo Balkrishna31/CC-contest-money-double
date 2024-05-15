@@ -1,0 +1,1 @@
+# CC-contest-money-double
